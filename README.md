@@ -29,3 +29,4 @@ Click [here](https://finalfantasy.fandom.com/wiki/Etheirys) to visit Etheirys!
 
 ![Loporitt image](https://static.wikia.nocookie.net/finalfantasy/images/5/5b/Lopporit_official_render_Final_Fantasy_XIV.png)
 
+I can hear you! ~ Kalhoun Farrer from Etheirys
